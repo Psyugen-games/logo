@@ -1,2 +1,8 @@
-# logo
-logo factory: meaning of the name, inspirational designs
+# Logo
+Logo factory: meaning of the name, inspirational designs
+
+## Yugen
+
+## Psyche 
+
+### Logo ideas
